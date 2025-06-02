@@ -59,4 +59,4 @@ Java Burn 2.0 is designed to be mixed with your morning coffee, leveraging the n
 
 Java Burn 2.0 offers a convenient and natural approach to support weight loss and enhance energy levels by integrating seamlessly into your morning coffee routine. While many users report positive outcomes, individual results may vary. As with any supplement, it's advisable to consult with a healthcare professional before beginning use.
 
-🛒AVAILABLE AT -> tinyurl.com/javaburn2re
+🛒AVAILABLE AT -> tinyurl.com/javaburn2rev
